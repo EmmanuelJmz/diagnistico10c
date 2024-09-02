@@ -1,0 +1,1 @@
+# diagnistico10c
